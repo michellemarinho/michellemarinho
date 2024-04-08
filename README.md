@@ -1,1 +1,1 @@
-👋 Hi, I’m ❤ @michellemarinho
+Hi, I’m ❤ @michellemarinho
